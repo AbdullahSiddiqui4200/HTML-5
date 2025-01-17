@@ -1,10 +1,7 @@
-# HTML-5
-HUZAIFA ARIF 
+# GIT 2
+
 <br>
 
-We enjoy a lot with huzaifa arif ali dolat story and she cry a lot infront of me and jhanzaib and musab khan life in UGENDA he is shela ki javani or meri dil ki jan musab khan dunia ki no 1 naan or kso whsatidhsfig 
-br
-hdfasjubhdfs gdpoasb gdkjsbdfjsgh fkjsgdsh dgsjhdfsghdskghjcsg ds gsjs hgkjsd gdjsh djsgh fgh dfkjsgjsdfgjds ojdsh dos gidshgh dasg hdaso gj 
-br
-SO WDJGDJASHFSI GDJSCH DGSJ UIHDSG DSJH GDJSGHJDS HGDSJGHDSJ GDFASH GJH DJSG HJDSDJASG HJASDH ASDJGH DJSFH VAFJH GJKFHSG JHDFS GK SGHF
-
+SO MY NAME IS ABDULLAH SIDDIQUOI 4200 @GMAIL.COM SO I LIVE IN NORTH NAZIMABAD KARACHI AND MY FRIEND COME FROM BACKSIDE OF CAFE PAYALA 
+<br>
+my friend musab khan live in UGENDA and he is very very handsome and UNIQUE PERSON IN THIS WORLD SO KINDLY GO MEET WITH MUSAB KHAN 
